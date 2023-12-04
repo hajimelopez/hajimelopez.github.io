@@ -20,6 +20,8 @@ The studio later produced an anime film adapting the first part, Phantom Blood, 
 
 [JoJo's Bizarre Adventure](https://en.wikipedia.org/wiki/JoJo%27s_Bizarre_Adventure) is mostly popular because of it's artstyle, sudden change of color scheme, poses, frequent references to western music and fashion. The series had over 120 million copies in circulation by December 2021, making it one of the best-selling manga series in history, and it has spawned a media franchise including one-shot manga, light novels, and video games.The manga, TV anime, and live-action film are licensed in North America by Viz Media, which has produced various English-language releases of the series since 2005.
 
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/4dcxn4J8d6YQBLRx3Sy7Tg?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 ## **PLOT OF JOJO's BIZARRE ADVENTURE**
 JoJo's Bizarre Adventure's universe is a mirror of the real world with the addition of paranormal entities and forces. In this series, the characters have a capability to have supernatural powers, and the 2 major power systems are Hamon (波紋, "Ripple"), a martial arts technique that allows its user to focus bodily energy into sunlight via controlled breathing and Stands (スタンド, Sutando), a transformation of one's inner spiritual power 
 
